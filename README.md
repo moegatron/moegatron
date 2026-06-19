@@ -1,6 +1,7 @@
 <p align="center">
   <a href="https://github.com/moegatron">
-    <img src="https://komarev.com/ghpvc/?username=moegatron&color=9DA1A2&style=flat-square&label=ʚ♡ɞ" alt="Profile Views" />
+    <img src="https://visitor-badge.laobi.icu/badge?page_id=moegatron.visitor-badge&left_color=black&right_color=grey&left_text=!!">
+
 <p align="center">
    <img width="15%" height="auto" alt="tumblr_54c70df77b369f2bda0b1c2e9dc70cbc_47891ace_1280" src="https://github.com/user-attachments/assets/dc819395-f93e-406a-bd24-8917401ad90e" />
 <p align="center">
