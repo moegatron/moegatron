@@ -12,5 +12,7 @@ $${\color{#33334B} S\color{#45465F}o\ comple\color{#4E4C69}te, \color{#68587A}wh
 $${\color{#33334B} Ho\color{#45465F}w\ c\color{#4E4C69}an \ I \color{#68587A} \  ho\color{#81638A}ld \color{#91708F}\ yo\color{#A68094}u? }$$
 $${\color{#33334B} Da\color{#45465F}rk \ ang\color{#4E4C69}el, \ da\color{#68587A}rk\color{#81638A}\ angel, \ it's\color{#91708F}\ time \ for\ \color{#A68094} the  \ fire }$$
 
+$${\color{#33334B} Sh\color{#45465F}ip-\color{#4E4C69}town's \ num. 1\color{#68587A}\color{#81638A}\ MegaSt\color{#91708F}ar \ ship\color{#A68094} per }$$
 <p align="center">
   <img width="80%" height="auto" src="https://github.com/user-attachments/assets/99543e41-756a-478c-9881-a2bdbe892e41" />
+
