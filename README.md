@@ -1,18 +1,36 @@
 <p align="center"> 
-  <img width="80%" height="auto" src="https://github.com/user-attachments/assets/9853874a-3eac-42e4-b357-dced53f1c48d" />
+  <img width="100%" height="auto" src="https://github.com/user-attachments/assets/dff41c3b-1227-409f-93b1-397906d0272e" />
 
 <p align="center">
   <a href="https://github.com/moegatron">
-    <img src="https://visitor-badge.laobi.icu/badge?page_id=moegatron.visitor-badge&left_color=pink&right_color=grey&left_text=!!">
 <p align="center">
 
-  <img width="80%" height="auto" alt="tfamegsgithub" src="https://github.com/user-attachments/assets/6d9c2810-296b-4949-9272-118243e26c6a" />
- 
-$${\color{#33334B} S\color{#45465F}o\ comple\color{#4E4C69}te, \color{#68587A}when \ we\color{#81638A}\ sle \color{#7C6089}ep \ in\color{#91708F}\ dec\color{#a68094}eit }$$
-$${\color{#33334B} Ho\color{#45465F}w\ c\color{#4E4C69}an \ I \color{#68587A} \  ho\color{#81638A}ld \color{#91708F}\ yo\color{#A68094}u? }$$
-$${\color{#33334B} Da\color{#45465F}rk \ ang\color{#4E4C69}el, \ da\color{#68587A}rk\color{#81638A}\ angel, \ it's\color{#91708F}\ time \ for\ \color{#A68094} the  \ fire }$$
 
-$${\color{#33334B} Sh\color{#45465F}ip-\color{#4E4C69}town's \ num. 1\color{#68587A}\color{#81638A}\ MegaSt\color{#91708F}ar \ ship\color{#A68094} per }$$
-<p align="center">
-  <img width="80%" height="auto" src="https://github.com/user-attachments/assets/99543e41-756a-478c-9881-a2bdbe892e41" />
 
+<img width="67%" align="right" src="https://github.com/user-attachments/assets/01217260-91cf-4789-97ab-665d1f40e85d" />
+  
+
+<br><br><br>
+  
+$${\color{#585858} Late \ to \ \color{#868686}no \ response,\ \color{#ACACAC} always \ w2i. }$$
+$${\color{#585858} offtab \ \color{#868686} \ very \ freq\color{#ACACAC}uently. }$$
+
+<br><br><br>
+
+  $${\color{#585858} So\ complete...\ when \ we\color{#868686}\ sleep \ in\color{#ACACAC}\ deceit.  }$$ 
+$${\color{#585858} How\ can \ I \color{#868686} \  hold \ yo\color{#ACACAC}u..? Dark \ angel, }$$
+$${\color{#585858}dark\ angel, \ it's\color{#868686}\ time \ for\color{#ACACAC}\  fire... }$$
+
+<br><br><br>
+
+$${\color{#585858} Ship-\color{#868686}town's \ nu\color{#ACACAC}m. 1}$$
+$${\color{#585858}\ MegaSt\color{#868686}ar \ ship\color{#ACACAC} per }$$
+
+<br><br><br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<img width="34" height="auto" src="https://github.com/user-attachments/assets/951331fb-31b7-4fab-b921-b42dd1bb853c" />[rentry](https://rentry.co/megascream) 𓆩♡𓆪 [atabook](https://knify.atabook.org/) 
+<img src="https://visitor-badge.laobi.icu/badge?page_id=moegatron.visitor-badge&left_color=black&right_color=grey&left_text=!!">  
+
+<br><br>
+
+<img width="120%" height="auto" alt="moegatronsworddiv" src="https://github.com/user-attachments/assets/0cb98077-f0f7-43e8-bc9d-73d04f507783" />
