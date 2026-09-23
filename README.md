@@ -5,8 +5,6 @@
   <a href="https://github.com/moegatron">
 <p align="center">
 
-
-
 <img width="64%" align="right" src="https://github.com/user-attachments/assets/01217260-91cf-4789-97ab-665d1f40e85d" />
   
 
@@ -33,4 +31,4 @@ $${\color{#585858}\ MegaSt\color{#868686}ar \ ship\color{#ACACAC} per }$$
 
 <br><br>
 
-<img width="120%" height="auto" alt="moegatronsworddiv" src="https://github.com/user-attachments/assets/0cb98077-f0f7-43e8-bc9d-73d04f507783" />
+<img width="130%" height="auto" align="center" alt="moegatronsworddiv" src="https://github.com/user-attachments/assets/0cb98077-f0f7-43e8-bc9d-73d04f507783" />
