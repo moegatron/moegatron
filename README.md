@@ -10,19 +10,19 @@
 
 <br><br><br>
   
-$${\color{#585858} Late \ to \ \color{#868686}no \ response,\ \color{#ACACAC} always \ w2i. }$$
-$${\color{#585858} offtab \ \color{#868686} \ very \ freq\color{#ACACAC}uently. }$$
+$${\color{#585858} Late \color{#7A7A7A} \ to \ no \ resp \color{#868686}onse,\ \color{#ACACAC} always \ w2i. }$$
+$${\color{#585858} off \color{#7a7a7a}tab \ \color{#868686} \ very \ freq\color{#ACACAC}uently. }$$
 
 <br><br><br>
 
-  $${\color{#585858} So\ complete...\ when \ we\color{#868686}\ sleep \ in\color{#ACACAC}\ deceit.  }$$ 
-$${\color{#585858} How\ can \ I \color{#868686} \  hold \ yo\color{#ACACAC}u..? Dark \ angel, }$$
-$${\color{#585858}dark\ angel, \ it's\color{#868686}\ time \ for\color{#ACACAC}\  fire... }$$
+  $${\color{#585858} So\ com\color{#7A7A7A}plete...\ when \ we\color{#868686}\ sleep \ in\color{#ACACAC}\ deceit.  }$$ 
+$${\color{#585858} How\ \color{#7A7A7A}can \ I \color{#868686} \  hold \ yo\color{#ACACAC}u..? Dark \ angel, }$$
+$${\color{#585858}dark\ \color{#7A7A7A}angel, \ it's\color{#868686}\ time \ for\color{#ACACAC}\  fire... }$$
 
 <br><br><br>
 
-$${\color{#585858} Ship-\color{#868686}town's \ nu\color{#ACACAC}m. 1}$$
-$${\color{#585858}\ MegaSt\color{#868686}ar \ ship\color{#ACACAC} per }$$
+$${\color{#585858} Sh\color{#7A7A7A}ip-\color{#868686}town's \ nu\color{#ACACAC}m. 1}$$
+$${\color{#585858}\ Mega\color{#7A7A7A}Sta\color{#868686}r \ shi\color{#ACACAC}p per }$$
 
 <br><br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
