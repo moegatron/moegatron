@@ -15,9 +15,9 @@ $${\color{#585858} off \color{#7a7a7a}tab \ \color{#868686} \ very \ freq\color{
 
 <br><br><br>
 
-  $${\color{#585858} So\ com\color{#7A7A7A}plete...\ when \ we\color{#868686}\ sleep \ in\color{#ACACAC}\ deceit.  }$$ 
+  $${\color{#585858} "So\ com\color{#7A7A7A}plete...\ when \ we\color{#868686}\ sleep \ in\color{#ACACAC}\ deceit.  }$$ 
 $${\color{#585858} How\ \color{#7A7A7A}can \ I \color{#868686} \  hold \ yo\color{#ACACAC}u..? Dark \ angel, }$$
-$${\color{#585858}dark\ \color{#7A7A7A}angel, \ it's\color{#868686}\ time \ for\color{#ACACAC}\  fire... }$$
+$${\color{#585858}dark\ \color{#7A7A7A}angel, \ it's\color{#868686}\ time \ for\color{#ACACAC}\  fire..." }$$
 
 <br><br><br>
 
